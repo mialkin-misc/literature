@@ -2,4 +2,8 @@
 
 L’année 1866 fut marquée par un événement bizarre, un phénomène inexpliqué et inexplicable que personne n’a sans doute oublié.
 
-Personne n’ignore le nom du célèbre armateur anglais Cunard. Cet intelligent industriel fonda, en 1840, un service postal entre Liverpool et Halifax.
+Dans cette observation simultanée, on crut pouvoir évaluer la longueur minimum du mammifère à plus de trois cent cinquante pieds anglais (environ 106 mètres).
+
+## Заметки
+
+Дюма то тут, то там делает приятно нагло-саксам, немцам, канадцам, вставляя, какие они классные: технологичные, предпреимчивые и очень современные.
