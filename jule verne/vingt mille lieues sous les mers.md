@@ -6,6 +6,13 @@ Dans cette observation simultanée, on crut pouvoir évaluer la longueur minimum
 
 On fit à New York les préparatifs d’une expédition destinée à poursuivre le narval. Une frégate de grande marche, **l’Abraham Lincoln**, se mit en mesure de prendre la mer au plus tôt. Les arsenaux furent ouverts au **commandant Farragut**, qui pressa activement l’armement de sa frégate.
 
+## Personnages
+
+- **Pierre Aronnax** — professeur au Muséum de Pierre.
+- **J. B. Hobson** — secrétaire de la Marine.
+
+## Objets
+
 ## Заметки
 
 Дюма то тут, то там делает приятно нагло-саксам, немцам, канадцам, вставляя, какие они классные: технологичные, предприимчивые и очень современные.
